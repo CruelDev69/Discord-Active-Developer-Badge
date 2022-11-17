@@ -25,7 +25,7 @@ How to get a active developer badge? Everything is explained for you in this rep
 
 ## Information:
 
-If this was helpful consider giving a star to this repo and follow me, You can support me on [Buy me a coffee](https://buymeacoffe.com/CruelDev69). Also don't forget to visit my premium tools shop on [sellix](https://ahadakacruel.sellix.io/). Keep supporting.
+If this was helpful consider giving a star to this repo and follow me, You can support me on [Buy me a coffee](https://www.buymeacoffee.com/CruelDev69). Also don't forget to visit my premium tools shop on [sellix](https://ahadakacruel.sellix.io/). Keep supporting.
 
 ## Social Media:
 [Instagram](https://www.instagram.com/ahadnoor._) ・
